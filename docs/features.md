@@ -1,4 +1,4 @@
-# 果冻传媒天美传媒精东影业在线
+# Technical highlights
 
 Discover the powerful features that My New Software offers.
 
