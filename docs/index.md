@@ -1,33 +1,25 @@
-# 精东影业-精东影视app传媒制作公司
+# 亲子乱子伦xxxxx in in
 
-**精东影业——网络影视内容新势力，专注打造高质量短剧作品！**  
-
-精东影业是一家近年来在网络短剧领域迅速崛起的影视内容制作团队，主打**微短剧、网络剧与原创视频内容**的创作与发行。凭借贴近生活的剧情、敏锐的市场嗅觉以及稳定的内容输出能力，精东影业已积累了大量忠实观众，在新媒体影视圈占据一席之地。
-
----
-
-### 🎬 **平台特色与核心优势：**
-
-✅ **题材新颖，类型多样**  
-精东影业擅长以都市情感、职场故事、家庭伦理等为基础，结合当下观众关注的热点元素，打造情节紧凑、设定新颖、富有代入感的系列短剧。每一部作品虽体量小，但剧情抓人，极具“爽剧”节奏。
-
-✅ **快节奏短剧形式，满足碎片化观看**  
-内容多为**5-15分钟一集**的微短剧模式，非常适合现代人碎片时间的观看需求。在通勤、午休、休闲等场景中轻松追剧，快节奏推进、反转频出的剧情设置深受用户喜爱。
-
-✅ **专业团队，稳定输出**  
-精东影业拥有一支成熟的编剧、导演、摄影与后期制作团队，确保每一部作品在**剧本质量、拍摄画面和演员表现**上保持一定水准，做到高频更新、高效产出。
-
-✅ **演员年轻化，贴近用户审美**  
-演员选角以**90后、00后**年轻演员为主，形象清新、表演自然，角色塑造更容易与观众产生情感连接，增强观看粘性。
-
-✅ **多平台覆盖，触达更广受众**  
-内容通过**官方网站、短视频平台、APP客户端等多个渠道**进行发布，实现跨平台分发，用户获取便捷，观影体验顺畅。
-
----
-
-📢 **精东影业致力于打造适合全民观看的精品微短剧内容。**  
-以用户兴趣为导向、以原创故事为核心，持续推出内容丰富、结构紧凑、节奏明快的优秀作品，正成为微短剧赛道上的一支不可忽视的新锐力量。未来，精东影业将继续深耕内容创新，为观众带来更多精彩纷呈的影视作品。
+1、 Platform positioning
+Positioned as an "AI driven immersive viewing platform", it integrates domestic and foreign genuine film and television resource libraries, covering four major categories: movies, TV dramas, variety shows, and documentaries, and supports 4K HDR ultra high definition playback. By using an intelligent recommendation engine to distribute content to thousands of people, with an average daily update time of over 2000 hours.
+2、 Core functional modules
+Intelligent movie watching system
+AI image quality restoration technology (supporting 4K enhancement of old films)
+Multi terminal progress synchronization (seamless switching between mobile phone/TV/tablet)
+Bullet screen interaction and virtual viewing room function
+Creator Ecology
+Film and television commentary creation tool (automatic subtitles/clip editing)
+Derivative Content Submission Area (Second Creation/Film Review/Mixed Editing)
+Commercial system
+Member subscription (continuous monthly subscription as low as 18 yuan)
+Single payment (early access to new movies)
+Customized brand advertising space
+3、 Technical highlights
+Self developed P2P-CDN acceleration technology (buffering speed increased by 60%)
+Blockchain copyright certification system
+Accessible viewing mode (AI亲子乱子伦xxxxx in in voice description/intelligent subtitles)
+4、 Operational data
+There are 23 million registered users, 5.8 million MAUs, and a film library reserve of over 120000 units. The cooperative copyright holders include 120 institutions such as Warner Bros. and Disney.
 <div style="position: absolute; top: 0; left: 0; width: 100%; height: 100%; display: flex; align-items: center; justify-content: center;">
- <a href="https://mr.mbd.baidu.com/1iib1ebUDio?8x.html" style="text-decoration: none; color: white; background-color: black; font-size: 32px; width: 100%; height: 100%; display: flex; align-items: center; justify-content: center;">👉👉&#9829;&#28857;&#25105;&#36827;&#20837;&#9829;&#35266;&#30475;&#20837;&#21475;👈👈</a>
-</div>
+ <a href="https://ms.mbd.baidu.com/1iib4I0JtsI?/inin" style="text-decoration: none; color: white; background-color: black; font-size: 32px; width: 100%; height: 100%; display: flex; align-items: center; justify-content: center;">👉&#9829;&#28857;&#25105;&#36827;&#20837;&#9829;&#35266;&#30475;&#20837;&#21475;👈</a></div>
 Check out the [About](about.md) page to learn more about our mission and values.
